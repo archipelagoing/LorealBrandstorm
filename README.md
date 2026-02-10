@@ -3,6 +3,7 @@
 # L’Oréal Brandstorm 2026 — Strategic Concept Framework
 
 ---
+https://brandstorm.loreal.com/en/challenges/united-states/pages/your-gateway-to-l-oreal?lang=en
 
 # 1. What L’Oréal ACTUALLY Wants
 
